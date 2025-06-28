@@ -1,0 +1,1 @@
+After finishing my thesis undergraduate, I have free time for learning new skills, and Machine Learning is my best choice. I first started searching primary information and following an online course from W3school. Hope this is well!!!
